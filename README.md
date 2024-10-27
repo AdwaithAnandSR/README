@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Adwaith Anand SR
+- 👀 I’m eager to dive into cutting-edge concepts and push my boundaries.
+- 🌱 I’m currently learning BCA
+- 📫 How to reach me EMAIL: adwaithanand1818@gmail.com
+- ⚡ Fun fact: ...
+- 💪 I’m ready to take on new challenges and elevate my skills to the next level.
